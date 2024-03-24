@@ -1,3 +1,3 @@
-## 👋 Welcome!
+Hi there! 👋
 
-Hi there! I'm onicue. Check out my projects below and happy coding! 🚀
+Check out my projects below and happy coding! 🚀
